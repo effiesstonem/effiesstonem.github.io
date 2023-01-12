@@ -1,4 +1,5 @@
 # effiesstonem.github.io
-Faith F. Fernandes
+*Faith F. Fernandes*
 
-LG Brebeuf
+LG **Brebeuf**
+
