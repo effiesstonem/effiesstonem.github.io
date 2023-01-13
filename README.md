@@ -1,8 +1,8 @@
 # effiesstonem.github.io
 *Faith F. Fernandes*
 
-[Listen to me!](https://open.spotify.com/track/7qk4uPeLpaKhp8lwas1sBb?si=cd5fa3dc6d4c4d48)
-
 LG **Brebeuf**
 
-![image](https://user-images.githubusercontent.com/122419160/212209549-4341bdbc-9d28-4b8d-ba8f-043ebab2e707.png)
+[Spotify!!](https://open.spotify.com/user/31736ljgnaqbwlicmr2adsgp3xqa?si=f5b8e06cca13453b)
+
+![image](https://user-images.githubusercontent.com/122419160/212210482-4f8446a0-a98e-4eb4-b9d1-8b764db61419.png)
