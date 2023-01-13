@@ -1,5 +1,4 @@
 # effiesstonem.github.io
-theme: jekyll-theme-hacker
 *Faith F. Fernandes*
 
 LG **Brebeuf**
