@@ -1,7 +1,7 @@
 # effiesstonem.github.io
 *Faith F. Fernandes*
 
-[Banger] https://open.spotify.com/track/7qk4uPeLpaKhp8lwas1sBb?si=cd5fa3dc6d4c4d48
+[Banger](https://open.spotify.com/track/7qk4uPeLpaKhp8lwas1sBb?si=cd5fa3dc6d4c4d48)
 
 LG **Brebeuf**
 
