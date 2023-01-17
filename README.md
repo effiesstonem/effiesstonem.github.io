@@ -6,7 +6,9 @@ LG **Brebeuf**
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LJzCYSdrHMI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+
  ## Me and my enthusiasm for (REAL) music; i gaslight myself to thinking i'm different and cool; i love british men and their silly guitar riffs and depressing lyrics, especially if they're from manchester!; i  love guitarists
+ 
  
  <iframe width="560" height="315" src="https://www.youtube.com/embed/pIwaw2QhBbM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
  
