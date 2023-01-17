@@ -1,4 +1,4 @@
-# Sociability is hard enough for me
+# Sociability Is Hard Enough For Me
 
 *Faith F. Fernandes*
 
