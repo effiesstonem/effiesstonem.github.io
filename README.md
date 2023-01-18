@@ -7,6 +7,11 @@ LG **Brebeuf**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/LJzCYSdrHMI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
+> Your ears are full with their language
+There's wisdom there, you're sure
+'Til the words start slurring
+And you can't find the door
+
 
 
 > ## ***Me and my enthusiasm for (REAL) music; i gaslight myself to thinking i'm different and cool; i love british men and their silly guitar riffs and depressing lyrics, especially if they're from manchester!; i  love guitarists***
@@ -51,4 +56,4 @@ LG **Brebeuf**
 
 ![image](https://user-images.githubusercontent.com/122419160/212816025-813d6301-e87d-498f-b01a-afb0a68880bb.png)
 
-*p.s i'm at my limit.i dont think i can do this anymore. am i cool?im definitely a cool girl. at least thats what they say i am. but what is a cool girl? is it the girls who chug down coke and beer and eat pizzas and burgers all the while keeping a waistline of 26? is it the girls who listens to obsucure punk ands and is always getting herself backstage for local band's gigs? How about the girls who mismatch their socks and wear frilly dresses and have unique smiles and goofy smirks, the ones who listens to bands that arent mainstream or the ones who hate taylor swift? Cool girl isn't real.I am not real.I am made to be a concept of being cool and different for the purpose of being accepted in a world were being a girl alone without any sort of uniqueness in their personality is seen as bad. I just want to be me. I don't even know who I am anymore. live laugh love:heart:*
+*p.s i'm at my limit.i dont think i can do this anymore. am i cool?im definitely a cool girl. at least thats what they say i am. but what is a cool girl?  I just want to be me. I don't even know who I am anymore. live laugh love:heart:*
