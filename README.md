@@ -56,4 +56,4 @@ And you can't find the door"
 
 ![image](https://user-images.githubusercontent.com/122419160/212816025-813d6301-e87d-498f-b01a-afb0a68880bb.png)
 
-*p.s i'm at my limit.i dont think i can do this anymore. am i cool?im definitely a cool girl. at least thats what they say i am. but what is a cool girl?  I just want to be me. I don't even know who I am anymore. live laugh love:heart:*
+*p.s i'm at my limit.i dont think i can do this anymore. am i cool?im definitely a cool girl. at least thats what they say i am. but what is a cool girl?  I just want to be me. I don't even know who I am anymore. live laugh love* :heart:
