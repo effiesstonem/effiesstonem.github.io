@@ -4,13 +4,13 @@
 
 LG **Brebeuf**
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LJzCYSdrHMI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6oqXVx3sBOk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
-> Your ears are full with their language
-There's wisdom there, you're sure
-'Til the words start slurring
-And you can't find the door
+> "Your ears are full with their language,
+There's wisdom there, you're sure.
+'Til the words start slurring,
+And you can't find the door"
 
 
 
