@@ -1,6 +1,7 @@
 # Sociability Is Hard Enough For Me
-![image](https://user-images.githubusercontent.com/122419160/213596790-6008a345-8ec9-427c-b748-aad891e25739.png)
 
+
+![image](https://user-images.githubusercontent.com/122419160/213596919-c45edb80-5b42-4e04-9902-11cce710b29d.png)
 
 *Faith F. Fernandes*
 
