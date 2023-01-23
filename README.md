@@ -49,6 +49,9 @@ And you can't find the door"
  2. In My Years Of Rest and Relaxation
  3. Lord of the Flies
 
+![image](https://user-images.githubusercontent.com/122419160/213951558-8dd87a05-68d2-4eec-b87e-2a4bf212da45.png)
+> slay
+
 > **goals**
 - [x] buy a stratocaster (IM SO COOL)
 - [x] gaslight
