@@ -31,8 +31,13 @@ And you can't find the door"
  
  - top three music genres
  1. Indie Rock
- 2. Indie Alt
+ 2. Britpop
  3. Shoegaze
+ 
+ - top three bands
+ 1. Oasis
+ 2. Pulp
+ 3. Inhaler 
 
  - top three movies
  1. Quadrophenia
