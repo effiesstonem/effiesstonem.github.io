@@ -45,7 +45,7 @@ And you can't find the door"
  3. Fight Club
  
 
- ## Gallery
+## Gallery
  
 ![image](https://user-images.githubusercontent.com/122419160/213952411-9e82624c-3cb2-491b-ac6f-87ca0630b86a.png)
 > xavi moments
@@ -61,6 +61,7 @@ And you can't find the door"
 
 ![image](https://user-images.githubusercontent.com/122419160/213952572-0d47f0be-0f7a-405e-b2d7-f8ecf4da0ead.png)
 > 👍
+
 ![image](https://user-images.githubusercontent.com/122419160/213952595-08ff0c99-7793-4f07-9f09-be8ec0297d09.png)
 > me and my baby!!!!
 
