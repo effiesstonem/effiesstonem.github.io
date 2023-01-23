@@ -44,16 +44,31 @@ And you can't find the door"
  2. Little Miss Sunshine
  3. Fight Club
  
- - top three books
- 1. Catcher In The Rye
- 2. In My Years Of Rest and Relaxation
- 3. Lord of the Flies
 
-![image](https://user-images.githubusercontent.com/122419160/213951558-8dd87a05-68d2-4eec-b87e-2a4bf212da45.png)
+ ## Gallery
+ 
+![image](https://user-images.githubusercontent.com/122419160/213952411-9e82624c-3cb2-491b-ac6f-87ca0630b86a.png)
+> xavi moments
+
+![image](https://user-images.githubusercontent.com/122419160/213952438-519c89cb-3e59-40e3-b89b-4456f57611b3.png)
+>tito outings
+
+![image](https://user-images.githubusercontent.com/122419160/213952451-bfd44e45-e25f-4a68-bc28-8cfa690a73fe.png)
+> M
+
+![image](https://user-images.githubusercontent.com/122419160/213952490-4f5486c5-5440-4048-a8c3-781037624d30.png)
+> "sige nak,pose ka diyan send natin ki ninang mo"
+
+![image](https://user-images.githubusercontent.com/122419160/213952572-0d47f0be-0f7a-405e-b2d7-f8ecf4da0ead.png)
+> 👍
+![image](https://user-images.githubusercontent.com/122419160/213952595-08ff0c99-7793-4f07-9f09-be8ec0297d09.png)
+> me and my baby!!!!
+
+![image](https://user-images.githubusercontent.com/122419160/213952637-b763f2e0-17ef-41e7-a055-73821a669de0.png)
 > slay
 
-> **goals**
-- [x] buy a stratocaster (IM SO COOL)
+
+
 - [x] gaslight
 - [x] gatekeep
 - [ ] girlboss
