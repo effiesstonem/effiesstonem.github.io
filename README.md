@@ -13,6 +13,8 @@ There's wisdom there, you're sure.
 And you can't find the door"
 
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3ZYYnEBVTsMutqF8zDF5Vw?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 > ## ***Me and my enthusiasm for (REAL) music; i gaslight myself to thinking i'm different and cool; i love british men and their silly guitar riffs and depressing lyrics, especially if they're from manchester!; i  love guitarists***
  
@@ -27,24 +29,8 @@ And you can't find the door"
  
  <iframe width="560" height="315" src="https://www.youtube.com/embed/7XFB4gl1Iok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
  
- > ## More of me (?)
- 
- - top three music genres
- 1. Indie Rock
- 2. Britpop
- 3. Shoegaze
- 
- - top three bands
- 1. Oasis
- 2. Pulp
- 3. Inhaler 
 
- - top three movies
- 1. Quadrophenia
- 2. Little Miss Sunshine
- 3. Fight Club
- 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0uppYCG86ajpV2hSR3dJJ0?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
  
 ### [more of me and my totally awesome(its not) music taste!!](https://open.spotify.com/user/31736ljgnaqbwlicmr2adsgp3xqa?si=f5b8e06cca13453b)
